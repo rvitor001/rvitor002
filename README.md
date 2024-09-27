@@ -6,8 +6,7 @@ Olá meu nome Rayan Vitor😄
 •minha cor favorita é vermelho🔴
 •Gosto de treinar na academia💪
 
-Entrar em contato comigo
+Entrar em contato 
 @rvitor001
-
 
 ![](https://tenor.com/pt-BR/view/d4c-jojo-steel-ball-run-jjba-funny-valentine-gif-26060924)
