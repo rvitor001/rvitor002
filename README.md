@@ -2,8 +2,11 @@
 Olá meu nome Rayan Vitor😄
 
 •Tenho 14 anos
+
 •Gosto de jogar bola
+
 •minha cor favorita é vermelho🔴
+
 •Gosto de treinar na academia💪
 
 Entrar em contato 
