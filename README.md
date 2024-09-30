@@ -1,15 +1,11 @@
 # rvitor002
 Olá meu nome Rayan Vitor😄
 
-•Tenho 14 anos
+-Tenho 14 anos
+-Gosto de jogar bola
+-Minha cor favorita é vermelho🔴
+-Gosto de treinar na academia💪
 
-•Gosto de jogar bola
-
-•minha cor favorita é vermelho🔴
-
-•Gosto de treinar na academia💪
-
-Entrar em contato 
+Para entrar em contato comigo
 @rvitor001
-![](https://tenor.com/pt-BR/view/d4c-jojo-steel-ball-run-jjba-funny-valentine-gif-26060924)
-![](https://tenor.com/pt-BR/view/d4c-gif-27401784)
+![image](https://github.com/user-attachments/assets/2fe0e6fa-8cea-4b8e-b404-a5dea026f206)
