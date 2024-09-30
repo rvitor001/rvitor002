@@ -8,4 +8,5 @@ Olá meu nome Rayan Vitor😄
 
 Para entrar em contato comigo
 @rvitor001
-![image](https://github.com/user-attachments/assets/2fe0e6fa-8cea-4b8e-b404-a5dea026f206)
+
+![.](https://github.com/user-attachments/assets/2fe0e6fa-8cea-4b8e-b404-a5dea026f206)
